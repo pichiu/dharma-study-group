@@ -1,4 +1,4 @@
-Bur哥flow...er
+成功滇珍+Bur哥flow...er品書會
 ===
 常用
 ---
@@ -6,6 +6,88 @@ Bur哥flow...er
 - [歷次品書會](/5JYE9VXYSea079GEnd0aBA)
 - [話家常](/b61TPSInSWCwgpx-aZJQGQ)
 - [出席紀錄表](/jaByBqEYTES00c7gt1ZJNQ)
+
+方便品
+----
+- [186 善巧方便真空妙有](/0IjTI6uVSHaLg729dariwg)
+- [187 法海德無邊](/znXVVRNiQPObjjmrFPQAsw)
+- [188 熄滅心火修三昧](/SGmsuNsNS8yGRgeHyQPiPg)
+- [189 愍念眾生 開智慧門](/r8GbvCA9RRaQbqZkifXKqg)
+- [190 信受持戒 入智慧門](/eAMDjzr2Tw2bHduetnduWA)
+- [191 遠離諸惡 親近善友](/507PxvQWSOasgi-lfKwmaQ)
+
+窮子喻
+----
+- [736 實諦理觀 六度萬行](/S8rb08lISsat8IDJDDKsKw)
+- [737 解佛心 大歡喜](/GTdmld_uRV-QqlGPRwJnCg)
+- [738 一乘大法 無量珍寶](/soicL4X7TiurbVhR2JhVug)
+- [739 樂說譬喻 循善誘誨](/G2cgnPN_TuC_-SgLBebzrQ)
+- [740 荷擔家業 莫學小道](/SwiCkBWNSb2jETej2l-DMA)
+- [741 捨父逃逝 常在三界](/H7Zlsr_vTVC5Ruz8wVdFNg)
+- [742 一歷識田 永為道種](/HeR5QhZwQ5OayxWTvmM69w)
+- [743 返妄歸真 遇向本國](/T_OulehRSkGTkm0ZBjtTsw)
+- [744 五度福德 財寶無量](/Yw3Ct_KiQsSfHmNNRrtpBw)
+- [745 出世法財無倫比](/r0LloaphTEyJBUDz3fXHXQ)
+- [746 萬行莊嚴 遍九法界](/nYyCKAsATIqwiggEJOk8yg)
+- [747 淨因善緣 大乘皈真](/-4RKikJfQMaUkWlrcfU6hQ)
+- [748 眾生不識如來本性](/0VvxNt3TS_eYkdcGEClLPQ)
+- [749 不解法妙 如聾若啞](/pqpiTQSmQ_muw-okP3769A)
+- [750 諸佛慈念 助成道種](/V5XQkWrGR561_B4M6jhasw)
+- [751 恆隨契範 轉小向大](/nk7xk1mATR626ksk881kNw)
+- [752 依事就理 入佛妙覺](/aXGqbiROQsWqVqPzca4a8A)
+- [753 勤苦奮力 進求諦理](/zZ1rb78ySPqL8WnmGRWT8g)
+- [754 智具方圓 莊嚴法身](/qKK4gHzvRSWwZix4z0yaiA)
+- [755 大乘七淨 淨行莊嚴](/GqgK-1p5R52uLDSS9-HIBg)
+- [756 菩薩立願 上求下化](/7DjgvjEFQ5C_o1Jl7LsSLw)
+- [757 無疑無怖 信解解脫](/lR2jUzzgRfKWM4nBsz33Ew)
+- [758 不受大化 不含萬德](/hnvO5CvgT3aoM2uwFuEN2Q)
+- [759 無常苦空 真空妙有](/tM571SCPQPqGEMP9QCw9cw)
+- [760 恆伺子機 今日機來](/Gy8jO4z0R1CpVdiM3MwuUg)
+- [761 等待大機 委付大乘](/Fe-sqy6eSUGIiOFJkDhIDw)
+- [762 誡惡勸善 明照群機](/bzikm9ZARYedQDZ2hM3jdg)
+- [763 教化勸誡入菩提](/fTAyTP0zQuKIAsxklqKGKw)
+- [764 不求大法 失三乘慧](/OyXoVVGWQvmLvoGyh-wvXg)
+- [765 急施大教 小根難信](/j86R244eS7yQ6eVeHWzmaw)
+- [766 勸誡二門 悲智雙施](/upld9SEwTnuBXd_noHAdxQ)
+- [767 本覺法財 萬德具足](/kXabLriPSK2DePKStawOmw)
+- [768 覺非機宜 隱實施權](/QbZtgKSISJOvqxitXpUkKg)
+- [769 隨順根機 誘小入大](/QyjImsACTmaPVVAqEW8K-w)
+- [770 斷見修惑 出離三界](/QdmS07cHQOS33g2pL45-Jg)
+- [771 機教合會 轉小向大](/AK73THgEQNe4VWO77_ge2A)
+- [772 雇使共作 除苦斷惑](/0AObPFbKTDCHfgP8yBYgcw)
+- [773 自懷寶藏 珍視精進](/I_ZF0C8MTHOhiC55g623jQ)
+- [774 道糧不足 慧命贏瘦](/i04afYZcQJGy7kZUJfgs4A)
+- [775 窮子的行相](/81tArmuyQV-UAcbzYaxkag)
+- [776 見思惑業苦](/Rd8K649FTxu08ZVvgEUHiQ)
+- [777 垢衣度小機](/H-lQcGL3RPCwSa5H4NU6ZA)
+- [778 因緣果報 真實不虛](/5btI4iTMQwKOhUs9WHmOlA)
+- [779 四種道法 精進修習](/9t4K1MWnQAyNQO15eDb3cg)
+- [780 愛深教切 呵護篤勵](/TyRSw7QVSe66JEyvBmmKWQ)
+- [781 如世慈父 教誡勤修](/Ua-PSeKVQGyhJFjnK53bNw)
+- [782 三七道品 當勤修習](/8dGzuQzaR7KNCv3eDz6BLQ)
+- [783 安住三十七助道諦](/tMw5fbZZRVu3ZhhmvmOyFQ)
+- [784 五根五力 信解奉持](/sIqE6kAOR0GVcl650N-Pbg)
+- [785 修持信進 誠心無欺](/cOXLz5VpQWyBVfNsK9aMog)
+- [786 慈心一切 無所傷害](/c_VON4hnQ2GasdmAyfzkvA)
+- [787 洗欲垢淨 息心達本](/ExVMC1cWRLucPYrFu0Yp5w)
+- [788 心相體信 入出無難](/W8o4ZdPXQ_6Am9gShl45iQ)
+- [789 應機示生滅](/ivuwFRBxRYemJWZKBSvaqA)
+- [790 了達諸法智慧海](/q8w17QcjQYqAnj-ZPk70Ag)
+- [791 父子天性不異](/CnlZkBmCRZS9omlqkJGlyg)
+- [792 佛心為心 我汝不異](/s-JWirUXRluqDyR0aXJkBw)
+- [793 當勤精進 勿令漏失](/LY4X6-kGSEmtlPaySAvb4A)
+- [794 漸通大乘 成就大志](/phw-ZeqqRXa7ADWXdoOSqw)
+- [795 精勤修道 造福修慧](/VxzhlXpuQg-Ve6idnwaKig)
+- [796 安住心所 行菩薩道](/I_rkIZ5PQg-v3rnhDMSEyQ)
+- [797 法身地中 以法為身](/jYQt-mB7RZyLaVyBKGlLwA)
+- [798 發起大心 趣入妙道](/mWc9F4SaQh64hsuFXRqyJA)
+- [799 本覺之理 湛然常住](/LJzuHg-uTXiq6Fe0qPZyEA)
+- [800 深體佛慈 轉小為大](/-g5lyAryQtGRy8rjN0tINA)
+- [801 信願力行悟方等](/o4tu_-lbSoqEhwd-hDmZog)
+- [802 除戲論 修三德](/4bBsSeeNQeqoMoA0j-MyWA)
+- [803 勿執井蛙之見](/dlObqVkaQd2LT68ujD2Dcw)
+- [804 化諸眾生 出離生死](/qOi0QvN6TYWCqcgoukuq6w)
+
 
 醫子喻
 ----
@@ -39,7 +121,7 @@ Bur哥flow...er
 - [1445 修持此經 至一切智](/EoIQWP4yQB2yRbSD0HA4gA)
 - [1446 久護明珠 今乃與之](/ySymEDTZR-qqJm26LjT7Mw)
 
-火宅喻【壹】
+火宅喻
 ----
 - [526 譬喻明義 智者得解](/bVTBCOLmRW-D3d1dF3fwWw)
 - [527 譬喻得解](/AQzjHrBgS3OxJo9FGM5Xqw)
@@ -69,10 +151,6 @@ Bur哥flow...er
 - [551 猛利精進勿玩火](/6JtMFynHQySuGzaG4hLKug)
 - [552 諸根暗鈍 三慧不生](/WFIOGJHASQy2HyPJHZMKdg)
 - [553 無漏三學共一心](/m4RPz1RCSF6JXptdj_hgPw)
-
-
-火宅喻【貳】
-----
 - [554 諸子無知 父憂如焚](/tBNWbVO-RLW__1fPr9I-Pw)
 - [555 方便妙權 解脫知見](/dZhfOOKpRtGfEZGvwJ15dw)
 - [556 無明欲熾 調心為藥](/donBFyPDQLS2qD-oFfatYA)
@@ -147,9 +225,6 @@ Bur哥flow...er
 - [880 如來出世如大雲起](/x0GDXhxAQPiMy1aHbO-gXA)
 - [881 修功立德滋潤福利](/QD7ytr86RpOn99iagBCTmg)
 
-
-窮子喻
-----
 
 會議記錄
 ---
