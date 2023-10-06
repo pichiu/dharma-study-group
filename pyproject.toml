@@ -8,6 +8,10 @@ readme = "README.md"
 [tool.poetry.dependencies]
 python = "^3.9"
 pytube = "^15.0.0"
+requests = "^2.31.0"
+selenium = "^4.13.0"
+beautifulsoup4 = "^4.12.2"
+sqlalchemy = "^2.0.21"
 
 
 [build-system]
